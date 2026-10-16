@@ -6,12 +6,10 @@ $\color{#FFA500}cr\ by @GravyFinx$
 
 $$\color{#FFA500}{\text{c + h + k  freely ‘‘ w2i ‘‘ iwc}}$$
 
-<table align="center">
+<table width="60%">
   <tr>
-    <td align="left">
-      <img src="ВАША_ССЫЛКА_НА_КАРТИНКУ" width="457"><br>
-      <br>
-      fdf
-    </td>
+    <td align="left">fad</td>
   </tr>
 </table>
+
+</div>
