@@ -1,4 +1,4 @@
-<img width="90%" height="110%" alt="image" src="https://github.com/user-attachments/assets/9671b307-0ca0-455b-ae3f-98e660805386" />вот ссылка если что редактируй
+<img width="90%" height="80%" alt="image" src="https://github.com/user-attachments/assets/9671b307-0ca0-455b-ae3f-98e660805386" />вот ссылка если что редактируй
 
 
 
