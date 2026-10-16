@@ -8,14 +8,8 @@ $$\color{#FFA500}{\text{c + h + k  freely ‘‘ w2i ‘‘ iwc}}$$
 
 fdf
 
-<!-- Код вашей фотки (остается без изменений) -->
-<img src="..." /> 
-
-<!-- Код для текста (вставляем вокруг вашего текста) -->
-<div style="text-align: left;">
-  cr by @GravyFinx <br>
-  c + h + k freely " w2i " iwc <br>
+<div align="left">
+  cr by @GravyFinx<br>
+  c + h + k freely " w2i " iwc<br>
   fdf
 </div>
-
-
