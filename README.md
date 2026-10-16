@@ -1,7 +1,1 @@
-<div style="width: 100%; height: 100px; overflow: hidden;">
-  <img style="width: 100%; height: 100%; object-fit: cover; object-position: center;" alt="image" src="https://github.com/user-attachments/assets/3e4ee1f1-1272-4690-8fdc-0124633e8004" />
-</div>
-
-
-meo
-meowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeow
+<img width="2560" height="1942" alt="yIAbHuzYP7_yopED7JtqjH5ZfIGBtsu7dPoyonn-tC_BLCboOJooWl6wp_fp0847JGUjK9MyoTsOaqJaj6iD9XlM_6VBpw" src="https://github.com/user-attachments/assets/43b82446-48e8-4214-83fe-865da45bd2c3" />
