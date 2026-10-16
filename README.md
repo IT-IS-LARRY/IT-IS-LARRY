@@ -8,8 +8,11 @@ $$\color{#FFA500}{\text{c + h + k  freely ‘‘ w2i ‘‘ iwc}}$$
 
 fdf
 
-<div align="left">
-  <img src="ссылка_на_картинку.png" width="460">
-  <br>
-  fdf
-</div>
+<table align="center">
+  <tr>
+    <td align="left">
+      <img src="ссылка_на_картинку.png" width="460"><br>
+      fdf
+    </td>
+  </tr>
+</table>
