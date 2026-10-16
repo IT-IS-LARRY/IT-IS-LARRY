@@ -8,8 +8,8 @@ $$\color{#FFA500}{\text{c + h + k  freely ‘‘ w2i ‘‘ iwc}}$$
 $\color{#FFA500}\text{‸ › so . . .}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&nbsp;
 
 <details>
-<summary>$\color{#FFA500}\text{byi}$</summary>
+<summary>$\color{#FFA500}\text{PONY TOWN}$</summary>
 
-$\color{#FFA500}\text{text}$
+$\color{#FFFF00}\large|\ \text{text}$
 
 </details>
