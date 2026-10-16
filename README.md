@@ -3,4 +3,6 @@
 
   
 $\color{#FFA500}cr\ by @GravyFinx$
-<p style="margin-left: 250px;">VZE</p>
+
+                        VZE
+
