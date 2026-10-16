@@ -4,7 +4,7 @@
   
 $\color{#FFA500}cr\ by @GravyFinx$
 
-$$\color{#FFA500}{\text{c    +   h   +   k  f   r   e   e    l    y ‘‘ w   2    i ‘‘ i   w   c}}$$
+$$\color{#FFA500}{\text{c + h + k  freely ‘‘ w2i ‘‘ iwc}}$$
 
 
 
