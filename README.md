@@ -1,12 +1,12 @@
-<img width="260" height="192" alt="yIAbHuzYP7_yopED7JtqjH5ZfIGBtsu7dPoyonn-tC_BLCboOJooWl6wp_fp0847JGUjK9MyoTsOaqJaj6iD9XlM_6VBpw" src="https://github.com/user-attachments/assets/43b82446-48e8-4214-83fe-865da45bd2c3" />
+<img width="680" height="307" alt="image" src="https://github.com/user-attachments/assets/9671b307-0ca0-455b-ae3f-98e660805386" />
 
 
 
 
-$$\color{#FFCC00}\text{cr by}$$
+
+
 
 $$\color{#FFA500}\text{cr by}$$
 
-$$\color{#FFD700}\text{cr by}$$
 
 
