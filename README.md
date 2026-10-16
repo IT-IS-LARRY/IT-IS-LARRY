@@ -9,12 +9,9 @@ $$\color{#FFA500}{\text{c + h + k  freely ‘‘ w2i ‘‘ iwc}}$$
 <table align="center">
   <tr>
     <td align="left">
-
-ВАША_СТРОКА_С_КАРТИНКОЙ_БЕЗ_ИЗМЕНЕНИЙ
-
-<br>
-fdf
-
+      <img src="ВАША_ССЫЛКА_НА_КАРТИНКУ" width="457"><br>
+      <br>
+      fdf
     </td>
   </tr>
 </table>
