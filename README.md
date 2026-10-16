@@ -8,12 +8,11 @@ $$\color{#FFA500}{\text{c + h + k  freely ‘‘ w2i ‘‘ iwc}}$$
 
 fdf
 
-<!-- Код вашей картинки, который мы не трогаем -->
-<img src="..." />
-
-<br clear="all">
-<p align="left">
-  cr by @GravyFinx<br>
-  c + h + k freely " w2i " iwc<br>
-  fdf
-</p>
+<div align="left">
+    <img src="ССЫЛКА_НА_ВАШУ_КАРТИНКУ" alt="Brawl Stars Art" width="500">
+    <br>
+    <p>cr by @ GravyFinx</p>
+    <p>c + h + k freely " w2i " iwc</p>
+    <br>
+    <p>fdf</p>
+</div>
