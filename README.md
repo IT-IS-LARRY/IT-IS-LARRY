@@ -3,10 +3,6 @@
 </p>
 
 
-
-
-
-
 $$\color{#FFA500}\text{cr by}$$
 
 
