@@ -4,5 +4,6 @@
   
 $\color{#FFA500}cr\ by @GravyFinx$
 
- VZE
+ <p align="center" style="text-align: center;"><span style="display: inline-block; width: 800px; text-align: left;">VZE</span></p>
+
 
