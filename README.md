@@ -4,4 +4,8 @@
   
 $\color{#FFA500}cr\ by @GravyFinx$
 
-<p align="left">VZE</p>
+ <p align="left">VZE</p>
+    </td>
+  </tr>
+</table>
+Используйте код с ост
