@@ -4,12 +4,4 @@
   
 $\color{#FFA500}cr\ by @GravyFinx$
 
-
-  </td>
-  </tr>
-  <tr>
-    <td align="left">
-      <font color="white">VZE</font>
-    </td>
-  </tr>
-</table>
+<p align="left">VZE</p>
