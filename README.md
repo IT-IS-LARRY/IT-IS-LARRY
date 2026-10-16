@@ -10,10 +10,6 @@ $\color{#FFA500}\text{‸ › so . . .}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&ems
 <details>
 <summary>$\color{#FFA500}\text{PONY TOWN}$</summary>
 
-<div align="left">
-
-> $\color{#E3A83B}\hspace{9em}\text{text}$
-
-</div>
+> $\color{#E0B84F}\text{text}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;
 
 </details>
