@@ -5,4 +5,5 @@
 $\color{#FFA500}cr\ by @GravyFinx$
 
 
-VZE
+ <font color="white">VZE</font>
+</p>
