@@ -6,8 +6,15 @@ $\color{#FFA500}cr\ by @GravyFinx$
 
 $$\color{#FFA500}{\text{c + h + k  freely ‘‘ w2i ‘‘ iwc}}$$
 
-<table align="center" width="457">
+<table align="center">
   <tr>
-    <td align="left">fdf</td>
+    <td align="left">
+
+ВАША_СТРОКА_С_КАРТИНКОЙ_БЕЗ_ИЗМЕНЕНИЙ
+
+<br>
+fdf
+
+    </td>
   </tr>
 </table>
