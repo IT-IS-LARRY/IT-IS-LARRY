@@ -2,6 +2,6 @@
 
  $\color{yellow}\text{cr by}$
  
- > [!WARNING]
-> cr by
+$$\color{#FFFF00}\text{cr by}$$
+
 
