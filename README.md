@@ -6,7 +6,12 @@ $\color{#FFA500}cr\ by @GravyFinx$
 $$\color{#FFA500}{\text{c + h + k  freely ‘‘ w2i ‘‘ iwc}}$$
 
 $\color{#FFA500}\text{‸ › so . . .}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&nbsp;
-</div>
+
 <details>
- <summary>PONY TOWN</summary>
-  <p>text</p>
+<summary>PONY TOWN</summary>
+
+text
+
+</details>
+
+</div>
