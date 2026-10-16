@@ -8,15 +8,8 @@ $$\color{#FFA500}{\text{c + h + k  freely ‘‘ w2i ‘‘ iwc}}$$
 
 fdf
 
-<table border="0" cellpadding="0" cellspacing="0" style="border: none;">
-  <tr>
-    <td style="border: none; text-align: left;">
-      <img src="ССЫЛКА_НА_ВАШУ_КАРТИНКУ" alt="Brawl Stars Art" width="500">
-      <br><br>
-      cr by @ GravyFinx<br>
-      c + h + k freely " w2i " iwc<br>
-      <br>
-      fdf
-    </td>
-  </tr>
-</table>
+<div align="left">
+  <img src="ссылка_на_картинку.png" width="460">
+  <br>
+  fdf
+</div>
