@@ -6,13 +6,8 @@ $\color{#FFA500}cr\ by @GravyFinx$
 
 $$\color{#FFA500}{\text{c + h + k  freely ‘‘ w2i ‘‘ iwc}}$$
 
-fdf
-
-<table align="center">
+<table align="center" width="457">
   <tr>
-    <td align="left">
-      <img src="ссылка_на_картинку.png" width="460"><br>
-      fdf
-    </td>
+    <td align="left">fdf</td>
   </tr>
 </table>
