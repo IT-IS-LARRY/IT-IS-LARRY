@@ -8,8 +8,12 @@ $$\color{#FFA500}{\text{c + h + k  freely ‘‘ w2i ‘‘ iwc}}$$
 
 fdf
 
-<div align="left">
+<!-- Код вашей картинки, который мы не трогаем -->
+<img src="..." />
+
+<br clear="all">
+<p align="left">
   cr by @GravyFinx<br>
   c + h + k freely " w2i " iwc<br>
   fdf
-</div>
+</p>
