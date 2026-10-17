@@ -21,6 +21,8 @@ $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{base, pro+com+darkshippers 
 
 <div align="left">
 
+$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. im a kind n friendly person}$ $\color{#E0B84F}\text{w a high level of empathy;}$ $\color{#E0B84F}\text{please dont be afraid of me,}$ $\color{#E0B84F}\text{n always let me know}$ $\color{#E0B84F}\text{if anything bothers u}$ $\color{#E0B84F}\text{while interactin' w me}$
+
 $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. its pointless to try}$ $\color{#E0B84F}\text{n provoke me into a}$ $\color{#E0B84F}\text{conflict or a reaction,}$ $\color{#E0B84F}\text{i see no reason to}$ $\color{#E0B84F}\text{waste my time on a}$ $\color{#E0B84F}\text{dialogue dat leads nowhere,}$ $\color{#E0B84F}\text{i will either ignore,}$ $\color{#E0B84F}\text{or block/hide u}$
 
 $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. im not a confrontational person,}$ $\color{#E0B84F}\text{but it doesnt mean}$ $\color{#E0B84F}\text{i wont stand up for myself}$ $\color{#E0B84F}\text{or engage in a conflict}$ $\color{#E0B84F}\text{if i have to}$ <img width="32" align="absmiddle" alt="pin" src="https://github.com/user-attachments/assets/8141e8b8-f3ad-48fc-b126-508bbc99900b" />
