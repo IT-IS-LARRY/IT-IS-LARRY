@@ -41,4 +41,4 @@ $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. in a conversation,}$ $\c
 
 
 
-<img width="34" height="32" alt="pin" src="https://github.com/user-attachments/assets/e8ba6752-d4fd-406e-9c29-9c5179d41649" />
+<img width="33" height="31" alt="pin" src="https://github.com/user-attachments/assets/e8ba6752-d4fd-406e-9c29-9c5179d41649" />
