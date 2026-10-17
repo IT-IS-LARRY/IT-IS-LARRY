@@ -15,4 +15,4 @@ $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{base, pro+com+darkshippers 
 </details>
 
 <details>
-<summary>$\color{#FFA500}\text{DNI}$</summary>
+<summary>$\color{#FFA500}\text{BYI}$</summary>
