@@ -9,6 +9,7 @@ $\color{#FFA500}\text{‸ › so . . .}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&ems
 
 <details>
 <summary>$\color{#FFA500}\text{DNI}$</summary>
+  
+$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{base, pro+com+darkshippers n their supports, slurusers, toxic + rude ppl, trolls, boundary breakers}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;
 
-$\color{#E0B84F}\begin{array}{l}\rule{2pt}{1.1em}\hspace{0.5em}\text{base, pro+com+darkshippers n their supports,}\hspace{3em}\\ \hspace{1em}\text{slurusers, toxic + rude ppl, trolls, boundary breakers}\end{array}$
 </details>
