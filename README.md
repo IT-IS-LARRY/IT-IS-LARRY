@@ -17,9 +17,6 @@ $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{base, pro+com+darkshippers 
 <details>
 <summary>$\color{#FFA500}\text{BYI}$</summary>
 
-<details>
-<summary>$\color{#FFA500}\text{RULES}$</summary>
-
 $\color{#E0B84F}\begin{array}{l}
 \rule{2pt}{1.1em}\hspace{0.5em}\text{<. its pointless to try n provoke me into a conflict or a}\hspace{2em}\\
 \rule{2pt}{1.1em}\hspace{0.5em}\text{reaction, i see no reason to waste my time on a dialogue}\\
@@ -34,13 +31,4 @@ $\color{#E0B84F}\begin{array}{l}
 \rule{2pt}{1.1em}\hspace{0.5em}\text{<. i dont mind if someone sits w me! sometimes i feel very}\\
 \rule{2pt}{1.1em}\hspace{0.5em}\text{lonely if my friends r away for a long time}\\[0.8em]
 \rule{2pt}{1.1em}\hspace{0.5em}\text{<. but if im sittin' w friends, i might pay less attention to u,}\\
-\rule{2pt}{1.1em}\hspace{0.5em}\text{bcs its hard for me to focus n chat w everyone at once,}\\
-\rule{2pt}{1.1em}\hspace{0.5em}\text{dis doesnt mean i find u boring, fr}\\[0.8em]
-\rule{2pt}{1.1em}\hspace{0.5em}\text{<. in a conversation, unless friend/acquaintance, i might}\\
-\rule{2pt}{1.1em}\hspace{0.5em}\text{sometimes seem a bit tense, or a buzzkill n too serious,}\\
-\rule{2pt}{1.1em}\hspace{0.5em}\text{sometimes its hard for me to understand someones true}\\
-\rule{2pt}{1.1em}\hspace{0.5em}\text{intentions n whether they want to cause harm, bcs of dis i}\\
-\rule{2pt}{1.1em}\hspace{0.5em}\text{can be very cautious}
-\end{array}$
-
-</details>
+\rule{2pt}{1.1em}\hspace{0.5em}\text{b
