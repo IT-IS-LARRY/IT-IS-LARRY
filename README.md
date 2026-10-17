@@ -41,6 +41,7 @@ $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. in a conversation,}$ $\c
 
 </details>
 
-$\color{#FFA500}\text{‸ › thanks for readin' !}$
+$\color{#FFA500}\text{‸ › thanks for readin' !}$ <img width="32" align="absmiddle" alt="pin" src="https://github.com/user-attachments/assets/1f58147e-a3ac-47d4-bca3-320cea317fb9" />
 
 </div>
+
