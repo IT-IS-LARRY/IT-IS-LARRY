@@ -39,4 +39,4 @@ $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. in a conversation,}$ $\c
 
 
 
-<img width="32" height="30"" alt="%3F%3F%3F%3F%3F_%3F_%3F%3F%3F%3F_Pin-NeutralAnim" src="https://github.com/user-attachments/assets/37098e29-7872-4aca-a315-5ffc65e89a68" />
+<img width="32" height="30" alt="pin" src="https://github.com/user-attachments/assets/37098e29-7872-4aca-a315-5ffc65e89a68" />
