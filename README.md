@@ -15,37 +15,21 @@ $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{base, pro+com+darkshippers 
 </details>
 
 <details>
+<details>
 <summary>$\color{#FFA500}\text{BYI}$</summary>
 
-<div align="left">
+$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. its pointless to try}$ $\color{#E0B84F}\text{n provoke me into a}$ $\color{#E0B84F}\text{conflict or a reaction,}$ $\color{#E0B84F}\text{i see no reason to}$ $\color{#E0B84F}\text{waste my time on a}$ $\color{#E0B84F}\text{dialogue dat leads nowhere,}$ $\color{#E0B84F}\text{i will either ignore,}$ $\color{#E0B84F}\text{or block/hide u}$
 
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. its pointless to try n provoke me into a conflict or a}$<br>
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{reaction, i see no reason to waste my time on a dialogue}$<br>
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{dat leads nowhere, i will either ignore, or block/hide u}$
+$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. dis applies to the}$ $\color{#E0B84F}\text{ru fandom; i take}$ $\color{#E0B84F}\text{almost all jokes as}$ $\color{#E0B84F}\text{mockery/a jibe directed at me,}$ $\color{#E0B84F}\text{i rlly dont trust}$ $\color{#E0B84F}\text{the ru fandom n}$ $\color{#E0B84F}\text{approach it w huge caution,}$ $\color{#E0B84F}\text{please keep dis in mind}$
 
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. dis applies to the ru fandom; i take almost all jokes as}$<br>
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{mockery/a jibe directed at me, i rlly dont trust the ru}$<br>
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{fandom n approach it w huge caution, please keep dis in mind}$
+$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. NEVER cover my skin}$ $\color{#E0B84F}\text{on purpose, unless}$ $\color{#E0B84F}\text{friend/acquaintance,}$ $\color{#E0B84F}\text{i dont care if its}$ $\color{#E0B84F}\text{a joke from ur side}$ $\color{#E0B84F}\text{or smth else}$
 
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. NEVER cover my skin on purpose, unless friend/acquaintance,}$<br>
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{i dont care if its a joke from ur side or smth else}$
+$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. please be POLITE,}$ $\color{#E0B84F}\text{i hate rude ppl,}$ $\color{#E0B84F}\text{n politeness is very}$ $\color{#E0B84F}\text{important in a conversation,}$ $\color{#E0B84F}\text{lets treat each other}$ $\color{#E0B84F}\text{w respect}$
 
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. please be POLITE, i hate rude ppl, n politeness is very}$<br>
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{important in a conversation, lets treat each other w respect}$
+$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. i dont mind if}$ $\color{#E0B84F}\text{someone sits w me!}$ $\color{#E0B84F}\text{sometimes i feel very}$ $\color{#E0B84F}\text{lonely if my friends}$ $\color{#E0B84F}\text{r away for a long time}$
 
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. i dont mind if someone sits w me! sometimes i feel very}$<br>
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{lonely if my friends r away for a long time}$
+$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. but if im sittin'}$ $\color{#E0B84F}\text{w friends, i might}$ $\color{#E0B84F}\text{pay less attention to u,}$ $\color{#E0B84F}\text{bcs its hard for me}$ $\color{#E0B84F}\text{to focus n chat}$ $\color{#E0B84F}\text{w everyone at once,}$ $\color{#E0B84F}\text{dis doesnt mean}$ $\color{#E0B84F}\text{i find u boring, fr}$
 
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. but if im sittin' w friends, i might pay less attention to u,}$<br>
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{bcs its hard for me to focus n chat w everyone at once,}$<br>
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{dis doesnt mean i find u boring, fr}$
-
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. in a conversation, unless friend/acquaintance, i might}$<br>
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{sometimes seem a bit tense, or a buzzkill n too serious,}$<br>
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{sometimes its hard for me to understand someones true}$<br>
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{intentions n whether they want to cause harm, bcs of dis i}$<br>
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{can be very cautious}$
-
-</div>
+$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. in a conversation,}$ $\color{#E0B84F}\text{unless friend/acquaintance,}$ $\color{#E0B84F}\text{i might sometimes seem}$ $\color{#E0B84F}\text{a bit tense, or a}$ $\color{#E0B84F}\text{buzzkill n too serious,}$ $\color{#E0B84F}\text{sometimes its hard for me}$ $\color{#E0B84F}\text{to understand someones}$ $\color{#E0B84F}\text{true intentions n whether}$ $\color{#E0B84F}\text{they want to cause harm,}$ $\color{#E0B84F}\text{bcs of dis i}$ $\color{#E0B84F}\text{can be very cautious}$
 
 </details>
