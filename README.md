@@ -23,7 +23,7 @@ $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{base, pro+com+darkshippers 
 
 $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. its pointless to try}$ $\color{#E0B84F}\text{n provoke me into a}$ $\color{#E0B84F}\text{conflict or a reaction,}$ $\color{#E0B84F}\text{i see no reason to}$ $\color{#E0B84F}\text{waste my time on a}$ $\color{#E0B84F}\text{dialogue dat leads nowhere,}$ $\color{#E0B84F}\text{i will either ignore,}$ $\color{#E0B84F}\text{or block/hide u}$
 
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. im not a confrontational person,}$ $\color{#E0B84F}\text{but it doesnt mean}$ $\color{#E0B84F}\text{i wont stand up for myself}$ $\color{#E0B84F}\text{or engage in a conflict}$ $\color{#E0B84F}\text{if i have to}$ <img width="21" align="absmiddle" alt="pin" src="https://github.com/user-attachments/assets/8141e8b8-f3ad-48fc-b126-508bbc99900b" />
+$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. im not a confrontational person,}$ $\color{#E0B84F}\text{but it doesnt mean}$ $\color{#E0B84F}\text{i wont stand up for myself}$ $\color{#E0B84F}\text{or engage in a conflict}$ $\color{#E0B84F}\text{if i have to}$ <img width="28" align="absmiddle" alt="pin" src="https://github.com/user-attachments/assets/8141e8b8-f3ad-48fc-b126-508bbc99900b" />
 
 $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. dis applies to the}$ $\color{#E0B84F}\text{ru fandom; i take}$ $\color{#E0B84F}\text{almost all jokes as}$ $\color{#E0B84F}\text{mockery/a jibe directed at me,}$ $\color{#E0B84F}\text{i rlly dont trust}$ $\color{#E0B84F}\text{the ru fandom n}$ $\color{#E0B84F}\text{approach it w huge caution,}$ $\color{#E0B84F}\text{please keep dis in mind}$
 
