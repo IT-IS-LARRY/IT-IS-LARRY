@@ -1,3 +1,4 @@
+<img width="417" height="512" alt="%3F%3F%3F%3F%3F_%3F_%3F%3F%3F%3F_Pin-FacepalmAnim" src="https://github.com/user-attachments/assets/4f2bdd04-3fed-4e0f-84b4-a43bb4ff11e1" />
 <div align="center">
 <img width="457" alt="image" src="https://github.com/user-attachments/assets/9671b307-0ca0-455b-ae3f-98e660805386" />
 
@@ -22,6 +23,8 @@ $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{base, pro+com+darkshippers 
 
 $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. its pointless to try}$ $\color{#E0B84F}\text{n provoke me into a}$ $\color{#E0B84F}\text{conflict or a reaction,}$ $\color{#E0B84F}\text{i see no reason to}$ $\color{#E0B84F}\text{waste my time on a}$ $\color{#E0B84F}\text{dialogue dat leads nowhere,}$ $\color{#E0B84F}\text{i will either ignore,}$ $\color{#E0B84F}\text{or block/hide u}$
 
+$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. im not a confrontational person,}$ $\color{#E0B84F}\text{but it doesnt mean}$ $\color{#E0B84F}\text{i wont stand up for myself}$ $\color{#E0B84F}\text{or engage in a conflict}$ $\color{#E0B84F}\text{if i have to}$ <img width="32" align="absmiddle" alt="pin" src="https://github.com/user-attachments/assets/8141e8b8-f3ad-48fc-b126-508bbc99900b" />
+
 $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. dis applies to the}$ $\color{#E0B84F}\text{ru fandom; i take}$ $\color{#E0B84F}\text{almost all jokes as}$ $\color{#E0B84F}\text{mockery/a jibe directed at me,}$ $\color{#E0B84F}\text{i rlly dont trust}$ $\color{#E0B84F}\text{the ru fandom n}$ $\color{#E0B84F}\text{approach it w huge caution,}$ $\color{#E0B84F}\text{please keep dis in mind}$
 
 $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. NEVER cover my skin}$ $\color{#E0B84F}\text{on purpose, unless}$ $\color{#E0B84F}\text{friend/acquaintance,}$ $\color{#E0B84F}\text{i dont care if its}$ $\color{#E0B84F}\text{a joke from ur side}$ $\color{#E0B84F}\text{or smth else}$
@@ -36,9 +39,9 @@ $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. but if im sittin'}$ $\co
 
 $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. in a conversation,}$ $\color{#E0B84F}\text{unless friend/acquaintance,}$ $\color{#E0B84F}\text{i might sometimes seem}$ $\color{#E0B84F}\text{a bit tense, or a}$ $\color{#E0B84F}\text{buzzkill n too serious,}$ $\color{#E0B84F}\text{sometimes its hard for me}$ $\color{#E0B84F}\text{to understand someones}$ $\color{#E0B84F}\text{true intentions n whether}$ $\color{#E0B84F}\text{they want to cause harm,}$ $\color{#E0B84F}\text{bcs of dis i}$ $\color{#E0B84F}\text{can be very cautious}$
 
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. im not a confrontational person,}$ $\color{#E0B84F}\text{but it doesnt mean}$ $\color{#E0B84F}\text{i wont stand up for myself}$ $\color{#E0B84F}\text{or engage in a conflict}$ $\color{#E0B84F}\text{if i have to}$
 
 </div>
 
 </details>
+
 
