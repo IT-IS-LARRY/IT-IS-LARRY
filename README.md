@@ -15,7 +15,6 @@ $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{base, pro+com+darkshippers 
 </details>
 
 <details>
-<details>
 <summary>$\color{#FFA500}\text{BYI}$</summary>
 
 $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. its pointless to try}$ $\color{#E0B84F}\text{n provoke me into a}$ $\color{#E0B84F}\text{conflict or a reaction,}$ $\color{#E0B84F}\text{i see no reason to}$ $\color{#E0B84F}\text{waste my time on a}$ $\color{#E0B84F}\text{dialogue dat leads nowhere,}$ $\color{#E0B84F}\text{i will either ignore,}$ $\color{#E0B84F}\text{or block/hide u}$
