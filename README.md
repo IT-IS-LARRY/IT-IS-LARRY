@@ -39,6 +39,8 @@ $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. but if im sittin'}$ $\co
 
 $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. in a conversation,}$ $\color{#E0B84F}\text{unless friend/acquaintance,}$ $\color{#E0B84F}\text{i might sometimes seem}$ $\color{#E0B84F}\text{a bit tense, or a}$ $\color{#E0B84F}\text{buzzkill n too serious,}$ $\color{#E0B84F}\text{sometimes its hard for me}$ $\color{#E0B84F}\text{to understand someones}$ $\color{#E0B84F}\text{true intentions n whether}$ $\color{#E0B84F}\text{they want to cause harm,}$ $\color{#E0B84F}\text{bcs of dis i}$ $\color{#E0B84F}\text{can be very cautious}$ 
 
+$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. im not strict,}$ $\color{#E0B84F}\text{im settin' my boundaries}$
+
 </details>
 
 $\color{#FFA500}\text{☼ ‸ › thanks for readin' !}$ <img width="32" align="absmiddle" alt="pin" src="https://github.com/user-attachments/assets/1f58147e-a3ac-47d4-bca3-320cea317fb9" />
