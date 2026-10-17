@@ -37,3 +37,8 @@ $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. in a conversation,}$ $\c
 </div>
 
 </details>
+
+
+
+
+<img width="32" height="30" alt="pin" src="https://github.com/user-attachments/assets/e8ba6752-d4fd-406e-9c29-9c5179d41649" />
