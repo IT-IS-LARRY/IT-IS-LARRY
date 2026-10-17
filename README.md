@@ -28,7 +28,7 @@ $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. NEVER cover my skin}$ $\
 
 $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. please be POLITE,}$ $\color{#E0B84F}\text{i hate rude ppl,}$ $\color{#E0B84F}\text{n politeness is very}$ $\color{#E0B84F}\text{important in a conversation,}$ $\color{#E0B84F}\text{lets treat each other}$ $\color{#E0B84F}\text{w respect}$
 
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. i dont mind if}$ $\color{#E0B84F}\text{someone sits w me!}$ $\color{#E0B84F}\text{sometimes i feel very}$ $\color{#E0B84F}\text{lonely if my friends}$ $\color{#E0B84F}\text{r away for a long time}$ <img width="33" height="31" alt="pin" src="https://github.com/user-attachments/assets/e8ba6752-d4fd-406e-9c29-9c5179d41649" />
+$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. i dont mind if}$ $\color{#E0B84F}\text{someone sits w me!}$ $\color{#E0B84F}\text{sometimes i feel very}$ $\color{#E0B84F}\text{lonely if my friends}$ $\color{#E0B84F}\text{r away for a long time}$ <img width="32" height="30" alt="pin" src="https://github.com/user-attachments/assets/e8ba6752-d4fd-406e-9c29-9c5179d41649" />
 
 
 $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. but if im sittin'}$ $\color{#E0B84F}\text{w friends, i might}$ $\color{#E0B84F}\text{pay less attention to u,}$ $\color{#E0B84F}\text{bcs its hard for me}$ $\color{#E0B84F}\text{to focus n chat}$ $\color{#E0B84F}\text{w everyone at once,}$ $\color{#E0B84F}\text{dis doesnt mean}$ $\color{#E0B84F}\text{i find u boring, fr}$
