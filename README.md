@@ -1,5 +1,6 @@
 
 <div align="center">
+<img width="457" alt="image" src="https://github.com/user-attachments/assets/9671b307-0ca0-455b-ae3f-98e660805386" />
 
 $\color{#FFA500}cr\ by @GravyFinx$
 
@@ -42,5 +43,4 @@ $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. in a conversation,}$ $\c
 </div>
 
 </details>
-
 
