@@ -36,6 +36,8 @@ $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. but if im sittin'}$ $\co
 
 $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. in a conversation,}$ $\color{#E0B84F}\text{unless friend/acquaintance,}$ $\color{#E0B84F}\text{i might sometimes seem}$ $\color{#E0B84F}\text{a bit tense, or a}$ $\color{#E0B84F}\text{buzzkill n too serious,}$ $\color{#E0B84F}\text{sometimes its hard for me}$ $\color{#E0B84F}\text{to understand someones}$ $\color{#E0B84F}\text{true intentions n whether}$ $\color{#E0B84F}\text{they want to cause harm,}$ $\color{#E0B84F}\text{bcs of dis i}$ $\color{#E0B84F}\text{can be very cautious}$
 
+$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. im not a confrontational person,}$ $\color{#E0B84F}\text{but it doesnt mean}$ $\color{#E0B84F}\text{i wont stand up for myself}$ $\color{#E0B84F}\text{or engage in a conflict}$ $\color{#E0B84F}\text{if i have to}$
+
 </div>
 
 </details>
