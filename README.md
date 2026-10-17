@@ -13,3 +13,6 @@ $\color{#FFA500}\text{‸ › so . . .}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&ems
 $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{base, pro+com+darkshippers n their supports, slurusers, toxic + rude ppl, trolls, boundary breakers}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;
 
 </details>
+
+<details>
+<summary>$\color{#FFA500}\text{DNI}$</summary>
