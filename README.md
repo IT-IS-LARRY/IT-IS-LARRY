@@ -4,7 +4,7 @@
 
 $\color{#FFA500}cr\ by @GravyFinx$
 
-$$\color{#FFA500}{\text{⁙ c + h + k  freely ‘ﾟ w2i ‘ﾟ iwc ‘ﾟdo not copy}}$$
+$$\color{#FFA500}{\text{⁙ c + h + k  freely ‘ﾟ w2i ‘ﾟ iwc ‘ﾟdo not copy my skins}}$$
 
 $\color{#FFA500}\text{‸ › so . . .}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&nbsp;
 
