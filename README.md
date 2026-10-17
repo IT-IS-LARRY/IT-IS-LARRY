@@ -8,7 +8,7 @@ $$\color{#FFA500}{\text{c + h + k  freely ‘‘ w2i ‘‘ iwc}}$$
 $\color{#FFA500}\text{‸ › so . . .}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&nbsp;
 
 <details>
-<summary>$\color{#FFA500}\text{PONY TOWN}$</summary>
+<summary>$\color{#FFA500}\text{DNI}$</summary>
 
 $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{мяу}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;
 
