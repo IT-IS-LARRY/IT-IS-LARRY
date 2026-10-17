@@ -1,6 +1,5 @@
-<img width="417" height="512" alt="%3F%3F%3F%3F%3F_%3F_%3F%3F%3F%3F_Pin-FacepalmAnim" src="https://github.com/user-attachments/assets/4f2bdd04-3fed-4e0f-84b4-a43bb4ff11e1" />
+
 <div align="center">
-<img width="457" alt="image" src="https://github.com/user-attachments/assets/9671b307-0ca0-455b-ae3f-98e660805386" />
 
 $\color{#FFA500}cr\ by @GravyFinx$
 
