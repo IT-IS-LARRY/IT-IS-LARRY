@@ -1,4 +1,18 @@
-sp;&emsp;
+
+<div align="center">
+<img width="457" alt="image" src="https://github.com/user-attachments/assets/9671b307-0ca0-455b-ae3f-98e660805386" />
+
+$\color{#FFA500}cr\ by @GravyFinx$
+
+$$\color{#FFA500}{\text{⁙ c + h + k  freely ‘ﾟ w2i ‘ﾟ iwc ‘ﾟdo not copy my skins}}$$ <img width="32" align="absmiddle" alt="pin" src="https://github.com/user-attachments/assets/a862fd6a-3ee0-4dcb-9aae-035a846c608b" />
+
+$\color{#FFA500}\text{╯‸ › so . . .}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&nbsp;
+
+
+<details>
+<summary>$\color{#FFA500}\text{DNI}$</summary>
+  
+$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{base, pro+com+darkshippers n their supports, slurusers, toxic + rude ppl, trolls, breakers boundary, copycat}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;
 
 </details>
 
@@ -34,4 +48,3 @@ $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. im not strict,}$ $\color
 $\color{#FFA500}\text{☼ ‸ › thanks for readin' !}$ <img width="32" align="absmiddle" alt="pin" src="https://github.com/user-attachments/assets/1f58147e-a3ac-47d4-bca3-320cea317fb9" />
 
 </div>
-
