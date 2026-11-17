@@ -10,13 +10,9 @@ $\color{#FFA500}\text{╯‸ › so . . .}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&
 
 
 <details>
-<summary>DNI</summary>
-
-$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{base, pro+com+darkshippers ...}$
-
-<div align="center">
-  <img src="[https://media1.tenor.com/m/fvPL6d7gfzcAAAAC/ultrakill-violence.gif](https://media1.tenor.com/m/fvPL6d7gfzcAAAAd/ultrakill-violence.gif)" width="150" alt="ultrakill">
-</div>
+<summary>$\color{#FFA500}\text{DNI}$</summary>
+  
+$\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{base, pro+com+darkshippers n their supports, slurusers, toxic + rude ppl, trolls, breakers boundary, copycat}$&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;
 
 </details>
 
@@ -52,3 +48,5 @@ $\color{#E0B84F}\rule{2pt}{1.1em}\hspace{0.5em}\text{<. im not strict,}$ $\color
 $\color{#FFA500}\text{☼ ‸ › thanks for readin' !}$ <img width="32" align="absmiddle" alt="pin" src="https://github.com/user-attachments/assets/1f58147e-a3ac-47d4-bca3-320cea317fb9" />
 
 </div>
+
+
